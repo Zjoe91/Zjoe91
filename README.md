@@ -43,4 +43,4 @@
 
 [Link to your online portfolio or website, where you showcase your work, projects, and achievements in greater detail.]
 
-* [linkedin.com/in/joseph-awad-mba-6010a816b]
+* linkedin.com/in/joseph-awad-mba-6010a816b
