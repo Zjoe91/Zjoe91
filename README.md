@@ -5,7 +5,7 @@
 
 - 💬 Ask me about: **Experienced Self Employed with a demonstrated history of working in the marketing and advertising industry. Skilled in Management, Leadership, Digital Marketing, Research, and Online Marketing. Strong entrepreneurship professional with a Master of Business Administration - MBA focused in Business Administration and Management, General from Lebanese American University. Well-developed management and problem-solving skills. Highly responsible, dedicated, and organized. Ability to grasp new concepts quickly. Critical analysis skills. Always up to date to the latest tech and have an admiration to innovation and out of the box ideas.**
 
-- 📫 How to reach me: **joseph.awad.91@gmail.com**
+- 📫 How to reach me: **XXXXXXXXXXXXXXX@XXXXXX**
 
 - 📄 Know about my experiences [https://linkedin.com/in/joseph-awad-mba-6010a816b](https://linkedin.com/in/joseph-awad-mba-6010a816b)
 
