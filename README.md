@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Joseph Awad</h1>
-<h3 align="center">I am a Passionate Learner</h3>
+<h3 align="center">I am a Passionate Learner 🧑‍💻</h3>
 
 - 👨‍💻 All of my projects are available at ["Projects link"]("Projects link")
 
